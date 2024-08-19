@@ -1,0 +1,1 @@
+# nova-era-tecnol-gica
